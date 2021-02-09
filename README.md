@@ -1,5 +1,5 @@
 ### Hello, 你好, Halo, Hola!
 
-Lucky to have built a life-saving app, democratized technology skills, and developed some really pretty websites. I'm an engineer, and above all else, an unapologetically user-centric designer.
+Lucky to have built a life-saving app, democratized technology skills, and developed some really pretty websites. I'm a creative technologist with modern solutions.
 
-Currently in Boston. Making cool stuff at [Upstatement](https://www.upstatement.com). Learning (or really relearning) Spanish on Duolingo. And still in quarantine...
+Currently in Boston. Learning (or really relearning) Spanish on Duolingo. And still in quarantine...
